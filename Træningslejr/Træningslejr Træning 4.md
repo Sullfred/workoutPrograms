@@ -1,9 +1,13 @@
 # Træningslejr Træning 4
 
 ### Opvarmning
-    
+   Fælles opvarmning 
 
-### Serie 1
+### Ministævne / olympisk lege
+
+
+### Roulette
 
 
 ### Afsvømning
+    6 x 25 vf løs
