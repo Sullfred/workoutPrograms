@@ -2,7 +2,6 @@
 
 ### Værelse 1
 - Adam
-- Alex
 - Carl R.
 - Christopher
 - Silas
@@ -26,6 +25,7 @@
 - Victor
 - Christian
 - Frederik Staal
+- Alex
 
 
 ### Værelse 5
