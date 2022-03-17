@@ -14,7 +14,8 @@
     2 x 25 cr fokus fremføring p.20
     4 x 25 Jesus cr p.20
     4 x 25 lynlås cr p.20
+    4 x 50 cr fokus fremføring p.25
 
 ### Afsvømning
     2 x 25 gå på bunden p.20
-    4 x 24 vf løs p.20
+    4 x 25 vf løs p.20
