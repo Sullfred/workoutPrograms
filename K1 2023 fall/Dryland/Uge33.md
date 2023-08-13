@@ -1,0 +1,32 @@
+# Uge 33
+## Mandag
+noget sjovt
+
+## Tirsdag
+3 x 30s, 20s pause (+10 bonus)
+- lunges
+- mountain climbers
+- rygbøjninger
+- hofteløft
+- mavebøjninger
+- benløft på maven
+
+Skulder øvelser
+
+
+## Onsdag
+
+
+3 x 30s, 20s pause (+10 bonus)
+- diagonal ryg
+- Planke med benløft
+- makker squat (vend mod hinanden)
+- flyvinger? (lig på maven med armene strakte ud til siden og løft så armene)
+- Diagonal benløft
+- Negative armstrækkere
+
+Skulder øvelser
+
+
+## Fredag
+Løb?
